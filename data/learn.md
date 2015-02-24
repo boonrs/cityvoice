@@ -1,1 +1,1 @@
-Learn more about CityVoice
+To learn more about getting involved in Boulder's housing conversation check out the [city's website for the Housing Boulder project.](http://housingboulder.net/)
